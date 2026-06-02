@@ -1,4 +1,4 @@
-
+Automático Marvel Rivals traps ESP é o melhor Marvel Rivals traps ESP com mira automática e sem espalhamento. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
